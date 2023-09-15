@@ -6,4 +6,5 @@ Gosto muito de desenvolvimento web e JavaScript.
 Gosto muito de academia🏋‍♂️
 
 Gosto muito de astronomia🪐
-  
+
+Namoro💍
