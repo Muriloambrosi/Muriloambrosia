@@ -9,6 +9,6 @@ Gosto muito de astronomia
 
 Namoro
 
-contato: muriloambrosiostegani@gmail.com
+contato: murilo.stegani@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/swaggg-gif-21956245)
+![](https://media.tenor.com/jEAOGIo04_UAAAAd/satoru-gojo-gojo.gif)
