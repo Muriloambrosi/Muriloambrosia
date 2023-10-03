@@ -11,6 +11,6 @@ Namoro
 
 contato: murilo.stegani@escola.pr.gov.br
 
-![](https://media.tenor.com/PV2abKWmyRcAAAAd/anime.gif)
+![](https://media.tenor.com/uFS2gobwhrMAAAAd/dog-dog-with-butterfly-on-nose.gif)
 
 
